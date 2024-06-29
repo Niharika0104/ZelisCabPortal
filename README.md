@@ -1,1 +1,5 @@
 ![image](https://github.com/Niharika0104/ZelisCabPortal/assets/124892559/f26bbed8-abbf-41b5-8065-05fcd6804982)
+![image](https://github.com/Niharika0104/ZelisCabPortal/assets/124892559/d9b960f9-a8f7-4b79-b821-afd47eb39cce)
+![image](https://github.com/Niharika0104/ZelisCabPortal/assets/124892559/4773211a-fca0-48f2-b690-fbf16eef3d92)
+![image](https://github.com/Niharika0104/ZelisCabPortal/assets/124892559/295f2948-9688-4913-837e-f95d4020efb3)
+![image](https://github.com/Niharika0104/ZelisCabPortal/assets/124892559/2f50d90d-f4cd-49c7-9987-9525c45fa235)
